@@ -1,3 +1,3 @@
 ## Lewis Hall
-Recently graduated from the University of Exeter with a first class masters degree in Electronic Engineering. Currently looking to start a career as an AI Engineer. 
+Recently graduated from the University of Exeter with a first class integrated masters degree in Electronic Engineering.
 
